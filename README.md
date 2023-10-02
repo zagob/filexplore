@@ -1,3 +1,3 @@
 Tutorial Video Josh
 
-Minutes stop: 23:11
+Minutes stop: 36:12
