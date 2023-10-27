@@ -1,3 +1,3 @@
 Tutorial Video Josh
 
-Minutes watched: 6:52:034
+Minutes watched: 7:47:00
